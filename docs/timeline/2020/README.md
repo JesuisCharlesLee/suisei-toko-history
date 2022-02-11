@@ -418,7 +418,7 @@ This was the first Tokomachi cover song MV uploaded to YouTube channel.
 
 The song was from *Ensemble Stars! Album series Valkyrie*.
 
-According to the comments, the song fits their image - cute but also sometimes be very handsome.
+According to the comments, the song fits their image - cute but also sometimes very handsome.
 
 The song reached 1m replay in approximately a month. Considering EnSta is a rather unfamiliar genre for both Suisei and Toko's audiences, this is a pretty impressive record back in late 2020.
 
